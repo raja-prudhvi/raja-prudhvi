@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Raja
-- I like Automating, Networking & Day trading shit coins during my free time. :rocket:
+- I like Automating, Networking & Day trading shit coins in my free time. :rocket:
 - Dog Dad.Yes, I have a golden retriever. 
 - 📫 Reach me at prudhvir8901@gmail.com
 
